@@ -1,10 +1,6 @@
 ---
-title: "今日观察：【vx实名号出售平台】实用方法与操作要点_趋势分析"
-date: 2026-09-02
-draft: false
----
 
-<p><strong>Telegram 联系方式：@qszxc686</strong></p>
+---<p><strong>Telegram 联系方式：@qszxc686</strong></p>
 
 <h1>今日观察：【vx实名号出售平台】实用方法与操作要点_趋势分析</h1>
 

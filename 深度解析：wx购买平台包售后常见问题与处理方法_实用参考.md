@@ -1,10 +1,6 @@
 ---
-title: "深度解析：【wx购买平台包售后】常见问题与处理方法_实用参考"
-date: 2026-09-02
-draft: false
----
 
-<p><strong>Telegram 联系方式：@qszxc686</strong></p>
+---<p><strong>Telegram 联系方式：@qszxc686</strong></p>
 
 <h1>深度解析：【wx购买平台包售后】常见问题与处理方法_实用参考</h1>
 

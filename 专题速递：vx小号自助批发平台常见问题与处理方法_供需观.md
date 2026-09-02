@@ -1,10 +1,6 @@
 ---
-title: "专题速递：【vx小号自助批发平台】常见问题与处理方法_供需观"
-date: 2026-09-02
-draft: false
----
 
-<p><strong>Telegram 联系方式：@qszxc686</strong></p>
+---<p><strong>Telegram 联系方式：@qszxc686</strong></p>
 
 <h1>专题速递：【vx小号自助批发平台】常见问题与处理方法_供需观</h1>
 
